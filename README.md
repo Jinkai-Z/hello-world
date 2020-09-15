@@ -3,5 +3,5 @@
 ---------------------------
 Hi Guys,
 
-This is Kai. Nothing to show right now.
+This is Kai. I like watch NBA game.
 --------------------------------------------------
